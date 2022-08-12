@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sirchedge
+- 👀 I’m interested in creating soundtracks for your game
+- 🌱 I’m currently learning how to make soundtracks sound better
+- 💞️ I’m looking to collaborate on a whole nother level
+- 📫 Add me to your project/discord
